@@ -8,7 +8,7 @@
 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/09f84873-2c5d-4bc4-8ebf-a8c0f707cd09" /> ${\textsf{\color{#c86aa8} ࿙.͜໒꒱}}$ ${\textsf{\color{#b40d15} Ask }}$ ${\textsf{\color{#ba273b} 2 }}$ ${\textsf{\color{#ca70b3} inspo }}$
 
-${\textsf{\color{#c04363}　　𓏼˚̣̣̣　♥︎ }}$ ${\textsf{\color{#c24b6f}　　you,}}$　${\textsf{\color{#fbfafe}and　me,}}$
+${\textsf{\color{#c04363}　　𓏼˚̣̣̣　♥︎ }}$ ${\textsf{\color{#c24b6f}　　you,}}$　and me,
 
 
 　　🎼 ₍ᐢˊo̴̶̷̤ ̫ o̴̶̷̤ˋᐢ₎　✟　and　him
