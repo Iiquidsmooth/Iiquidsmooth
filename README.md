@@ -1,16 +1,18 @@
-## Hi there 👋
 
-<!--
-**Iiquidsmooth/Iiquidsmooth** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<img alt="Untitled124_20260901204927" src="https://github.com/user-attachments/assets/d48155ba-2a49-4bb6-a579-f2196fd29a1b" width="500" align="left">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="99" height="54" alt="image" src="https://github.com/user-attachments/assets/d838aff5-3fcf-4953-afa5-f043fa3e0c02" /> <img width="99" height="54" alt="image" src="https://github.com/user-attachments/assets/50727c91-4ac1-4db0-8e98-93f8474e54fd" />
+
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/bc597be7-66a4-49d5-8f71-626617198442" />  ${\textsf{\color{#c86aa8} ࿙.͜໒꒱}}$ ${\textsf{\color{#b40d15} Do }}$ ${\textsf{\color{#ba273b} not }}$ ${\textsf{\color{#ca70b3} copy }}$
+
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/09f84873-2c5d-4bc4-8ebf-a8c0f707cd09" /> ${\textsf{\color{#c86aa8} ࿙.͜໒꒱}}$ ${\textsf{\color{#b40d15} Ask }}$ ${\textsf{\color{#ba273b} 2 }}$ ${\textsf{\color{#ca70b3} inspo }}$
+
+${\textsf{\color{#c04363}　　𓏼˚̣̣̣　♥︎ }}$ ${\textsf{\color{#c24b6f}　　you,}}$　${\textsf{\color{#fbfafe}and　me,}}$
+
+
+　　🎼 ₍ᐢˊo̴̶̷̤ ̫ o̴̶̷̤ˋᐢ₎　✟　and　him
+
+
+wip
+
