@@ -28,11 +28,19 @@ ${\textsf{\color{#e0d8e4}　　🎼 ₍ᐢˊo̴̶̷̤ ̫ o̴̶̷̤ˋᐢ₎}}$ ${
 
 <p align= "center" 
  
- <sub> im a minor!! 10- iwc 15+ dniuid or iwec! transmasc Suspecting sys. i need tonetags, and slow so tell me if i made u uncomfy or anything  dandysworld and forsaken on thin ice dni if u keep mentioning my past, uses my deadnames DSMP, HH, HB or any problematic fandoms displayed by media basic dni n ppl who self diagnose themselves using tk slides etc typology: sp/so 485 (sp4w5 - so8w9 - sp5w4) | The Scholar-Guardian | LVEF [Accentuated 1L] | INTJ IN(T) Ni>Te>Fi>Se | Gamma Quadra [ILI-Ni] | rL[U]Ei mC[T]ixrG | Mel-Chol | Chaotic Neutral | BTZS-1 | MOEW-1 | NVPB-2 | [D]re/G/mEr (R-O-U-D-A)  </sub>
-
+ <sub> im a minor!! 10- iwc 15+ dniuid or iwec! transmasc Suspecting sys. i need tonetags, and slow so tell me if i made u uncomfy or anything  dandysworld and forsaken on thin ice dni if u keep mentioning my past, uses my deadnames DSMP, HH, HB or any problematic fandoms displayed by media basic dni n ppl who self diagnose themselves using tk slides etc </sub>
 
   
  </details>
+
+ <details>
+<summary> ${\textsf{\color{#f6f5f9} extra}}$ </summary><br>
+
+<p align= "center" 
+<sub> typology: sp/so 485 (sp4w5 - so8w9 - sp5w4) | The Scholar-Guardian | LVEF [Accentuated 1L] | INTJ IN(T) Ni>Te>Fi>Se | Gamma Quadra [ILI-Ni] | rL[U]Ei mC[T]ixrG | Mel-Chol | Chaotic Neutral | BTZS-1 | MOEW-1 | NVPB-2 | [D]re/G/mEr (R-O-U-D-A) </sub>
+  
+ </details>
+
 
 <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/b47fe372-dfa4-4750-95b1-f00c56085e07" />
 <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/a1acf5a0-1920-4ab6-b59f-2ff5501b6711" />
