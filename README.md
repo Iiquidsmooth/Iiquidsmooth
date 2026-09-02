@@ -8,11 +8,12 @@
 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/09f84873-2c5d-4bc4-8ebf-a8c0f707cd09" /> ${\textsf{\color{#c86aa8} ࿙.͜໒꒱}}$ ${\textsf{\color{#b40d15} Ask }}$ ${\textsf{\color{#ba273b} 2 }}$ ${\textsf{\color{#ca70b3} inspo }}$
 
-${\textsf{\color{#c04363}　　𓏼˚̣̣̣　♥︎ }}$ ${\textsf{\color{#c24b6f}　　you,}}$　and me,
+${\textsf{\color{#c04363}　　𓏼˚̣̣̣　♥︎ }}$ ${\textsf{\color{#c24b6f}　　you,}}$ ${\textsf{\color{#bd3955} and}}$ ${\textsf{\color{#b20000} me,}}$
 
 
-　　🎼 ₍ᐢˊo̴̶̷̤ ̫ o̴̶̷̤ˋᐢ₎　✟　and　him
+${\textsf{\color{#e0d8e4}　　🎼 ₍ᐢˊo̴̶̷̤ ̫ o̴̶̷̤ˋᐢ₎}}$ ${\textsf{\color{#dbbedd}　✟　and}}$ ${\textsf{\color{#c7649e}　him}}$
 
-
-wip
-
+ <details>
+  <summary> ${\textsf{\color{#f6f5f9} info on pt}}$ </summary><br>
+c*h freely even on dni  iwec or iwc all times i have mood swings 0-0 mostly at bakery i dont go to mcyt hill often, i have inconsistent styles!1 not a copier ok?  
+WIP 
