@@ -13,7 +13,29 @@ ${\textsf{\color{#c04363}　　𓏼˚̣̣̣　♥︎ }}$ ${\textsf{\color{#c24b6
 
 ${\textsf{\color{#e0d8e4}　　🎼 ₍ᐢˊo̴̶̷̤ ̫ o̴̶̷̤ˋᐢ₎}}$ ${\textsf{\color{#dbbedd}　✟　and}}$ ${\textsf{\color{#c7649e}　him}}$
 
+[(⸝⸝ɞ̴̶̷ ⩊ ɞ̴̶̷  ྀི)](https://reveried.atabook.org/)　　　　[₍^𓈒ㆆ ̫ㆆ𓈒^ྀི₎](https://pronouns.cc/@A1k0sT4r)
+
  <details>
   <summary> ${\textsf{\color{#f6f5f9} info on pt}}$ </summary><br>
-c*h freely even on dni  iwec or iwc all times i have mood swings 0-0 mostly at bakery i dont go to mcyt hill often, i have inconsistent styles!1 not a copier ok?  
-WIP 
+  <p align="center">
+  <sub> c*h freely even on dni  iwec or iwc all times i have mood swings mostly at bakery or with chemicalshot i dont go to mcyt hill often, i have inconsistent styles!1 not a copier ok? im a bad comforter so i can mostly say.. "i see.." Best I can do is cud w u mostly at school or afk IM A BUSY PERSON 0-0 </sub>
+
+ </details>
+
+ <details>
+
+<summary> ${\textsf{\color{#f6f5f9} byf n dni}}$ </summary><br> 
+
+<p align= "center" 
+ 
+ <sub> im a minor!! 10- iwc 15+ dniuid or iwec! transmasc Suspecting sys. i need tonetags, and slow so tell me if i made u uncomfy or anything  dandysworld and forsaken on thin ice dni if u keep mentioning my past, uses my deadnames DSMP, HH, HB or any problematic fandoms displayed by media basic dni n ppl who self diagnose themselves using tk slides etc  </sub>
+
+
+  
+ </details>
+
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/b47fe372-dfa4-4750-95b1-f00c56085e07" />
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/a1acf5a0-1920-4ab6-b59f-2ff5501b6711" />
+
+  
+
