@@ -1,6 +1,6 @@
 
 
-<img alt="Untitled124_20260901204927" src="https://github.com/user-attachments/assets/d48155ba-2a49-4bb6-a579-f2196fd29a1b" width="500" align="left">
+<img alt="Untitled124_20260901204927" src="https://github.com/user-attachments/assets/d48155ba-2a49-4bb6-a579-f2196fd29a1b" width="540" align="left">
 
 <img width="99" height="54" alt="image" src="https://github.com/user-attachments/assets/d838aff5-3fcf-4953-afa5-f043fa3e0c02" /> <img width="99" height="54" alt="image" src="https://github.com/user-attachments/assets/50727c91-4ac1-4db0-8e98-93f8474e54fd" />
 
@@ -28,7 +28,7 @@ ${\textsf{\color{#e0d8e4}　　🎼 ₍ᐢˊo̴̶̷̤ ̫ o̴̶̷̤ˋᐢ₎}}$ ${
 
 <p align= "center" 
  
- <sub> im a minor!! 10- iwc 15+ dniuid or iwec! transmasc Suspecting sys. i need tonetags, and slow so tell me if i made u uncomfy or anything  dandysworld and forsaken on thin ice dni if u keep mentioning my past, uses my deadnames DSMP, HH, HB or any problematic fandoms displayed by media basic dni n ppl who self diagnose themselves using tk slides etc  </sub>
+ <sub> im a minor!! 10- iwc 15+ dniuid or iwec! transmasc Suspecting sys. i need tonetags, and slow so tell me if i made u uncomfy or anything  dandysworld and forsaken on thin ice dni if u keep mentioning my past, uses my deadnames DSMP, HH, HB or any problematic fandoms displayed by media basic dni n ppl who self diagnose themselves using tk slides etc typology: sp/so 485 (sp4w5 - so8w9 - sp5w4) | The Scholar-Guardian | LVEF [Accentuated 1L] | INTJ IN(T) Ni>Te>Fi>Se | Gamma Quadra [ILI-Ni] | rL[U]Ei mC[T]ixrG | Mel-Chol | Chaotic Neutral | BTZS-1 | MOEW-1 | NVPB-2 | [D]re/G/mEr (R-O-U-D-A)  </sub>
 
 
   
