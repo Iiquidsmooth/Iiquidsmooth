@@ -13,8 +13,10 @@ ${\textsf{\color{#7498C9}⠀⠀　⠀⠀the　 end　  of　time　}}$
 <p align ="center">
 ${\textsf{\color{#E1AFC5}⠀　　　⠀ ARTIST :⠀“ }}$@/dofiel_l ${\textsf{\color{#E1AFC5}on X. ”⠀︵⏜ }}$ 
 
- <p align="center> 
+ <p align="center"> 
   ${\textsf{\color{#10206C}⠀⠀　⠀⠀pt　 　 titles　  acc⠀⠀sign　  my　  ata　  bc　  im　  lazy　  2　  check}}$
+
+  
 <img width="2048" height="171" alt="dd113451a3eed62017e699e9cea47366cfa40b74" src="https://github.com/user-attachments/assets/4c47e0fe-a9df-42ac-b455-3c50f64a748a" />
 <img width="1900" height="400" alt="tumblr_3a3113175e5357bfc46790994e074a31_c6d1007d_2048" src="https://github.com/user-attachments/assets/44112dcd-a8f4-4484-a6db-44596b4f01a9" />
 
