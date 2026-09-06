@@ -37,7 +37,7 @@ ${\textsf{\color{#e0d8e4}　　🎼 ₍ᐢˊo̴̶̷̤ ̫ o̴̶̷̤ˋᐢ₎}}$ ${
 <summary> ${\textsf{\color{#f6f5f9} extra}}$ </summary><br>
 
 <p align= "center" 
-<sub> typology: sp/so 485 (sp4w5 - so8w9 - sp5w4) | The Scholar-Guardian | LVEF [Accentuated 1L] | INTJ IN(T) Ni>Te>Fi>Se | Gamma Quadra [ILI-Ni] | rL[U]Ei mC[T]ixrG | Mel-Chol | Chaotic Neutral | BTZS-1 | MOEW-1 | NVPB-2 | [D]re/G/mEr (R-O-U-D-A) </sub>
+<sub> typology: sp/so 485 (sp4w5 - so8w7 - sp5w4) | The Scholar-Guardian | LVEF [Accentuated 1L] | INTJ IN(T) Ni>Te>Fi>Se | Gamma Quadra [ILI-Ni] | rL[U]Ei mC[T]ixrG | Mel-Chol | Chaotic Neutral | BTZS-1 | MOEW-1 | NVPB-2 | [D]re/G/mEr (R-O-U-D-A) </sub>
   
  </details>
 
