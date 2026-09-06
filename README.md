@@ -1,49 +1,17 @@
+<img width="1900" height="400" alt="image" src="https://github.com/user-attachments/assets/d10d0ee5-6450-4e27-9d8e-995276db1809" />
 
+<img width="2048" height="171" alt="dd113451a3eed62017e699e9cea47366cfa40b74" src="https://github.com/user-attachments/assets/fc14c8e5-5d03-4b44-a23c-222f6747c502" />
 
-<img alt="Untitled124_20260901204927" src="https://github.com/user-attachments/assets/d48155ba-2a49-4bb6-a579-f2196fd29a1b" width="540" align="left">
+<img width="2000" height="1125" alt="tumblr_e5bcda30cf6bbf44eb14b38024b1a35f_139ba0f9_2048" src="https://github.com/user-attachments/assets/61470743-da22-4607-9731-b622a2c72b6f" />
 
-<img width="99" height="54" alt="image" src="https://github.com/user-attachments/assets/d838aff5-3fcf-4953-afa5-f043fa3e0c02" /> <img width="99" height="54" alt="image" src="https://github.com/user-attachments/assets/50727c91-4ac1-4db0-8e98-93f8474e54fd" />
+<p align ="center">
+${\textsf{\color{#DFDFE9}⠀⠀　⠀⠀I　 　 will　  be⠀⠀👁‍🗨ཆྀ}}$
+<p align ="center">
+${\textsf{\color{#E1AFC5}⠀⠀　⠀⠀there　 　 　 for　 　you　 until}}$
+<p align ="center">
+${\textsf{\color{#62C4CE}⠀⠀　⠀⠀the　 end　  of　time　}}$
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/bc597be7-66a4-49d5-8f71-626617198442" />  ${\textsf{\color{#c86aa8} ࿙.͜໒꒱}}$ ${\textsf{\color{#b40d15} Do }}$ ${\textsf{\color{#ba273b} not }}$ ${\textsf{\color{#ca70b3} copy }}$
-
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/09f84873-2c5d-4bc4-8ebf-a8c0f707cd09" /> ${\textsf{\color{#c86aa8} ࿙.͜໒꒱}}$ ${\textsf{\color{#b40d15} Ask }}$ ${\textsf{\color{#ba273b} 2 }}$ ${\textsf{\color{#ca70b3} inspo }}$
-
-${\textsf{\color{#c04363}　　𓏼˚̣̣̣　♥︎ }}$ ${\textsf{\color{#c24b6f}　　you,}}$ ${\textsf{\color{#bd3955} and}}$ ${\textsf{\color{#b20000} me,}}$
-
-
-${\textsf{\color{#e0d8e4}　　🎼 ₍ᐢˊo̴̶̷̤ ̫ o̴̶̷̤ˋᐢ₎}}$ ${\textsf{\color{#dbbedd}　✟　and}}$ ${\textsf{\color{#c7649e}　him}}$
-
-[(⸝⸝ɞ̴̶̷ ⩊ ɞ̴̶̷  ྀི)](https://reveried.atabook.org/)　　　　[₍^𓈒ㆆ ̫ㆆ𓈒^ྀི₎](https://pronouns.cc/@A1k0sT4r)
-
- <details>
-  <summary> ${\textsf{\color{#f6f5f9} info on pt}}$ </summary><br>
-  <p align="center">
-  <sub> c*h freely even on dni  iwec or iwc all times i have mood swings mostly at bakery or with chemicalshot i dont go to mcyt hill often, i have inconsistent styles!1 not a copier ok? im a bad comforter so i can mostly say.. "i see.." Best I can do is cud w u mostly at school or afk IM A BUSY PERSON 0-0 </sub>
-
- </details>
-
- <details>
-
-<summary> ${\textsf{\color{#f6f5f9} byf n dni}}$ </summary><br> 
-
-<p align= "center" 
  
- <sub> im a minor!! 10- iwc 15+ dniuid or iwec! transmasc Suspecting sys. i need tonetags, and slow so tell me if i made u uncomfy or anything  dandysworld and forsaken on thin ice dni if u keep mentioning my past, uses my deadnames DSMP, HH, HB or any problematic fandoms displayed by media basic dni n ppl who self diagnose themselves using tk slides etc </sub>
-
-  
- </details>
-
- <details>
-<summary> ${\textsf{\color{#f6f5f9} extra}}$ </summary><br>
-
-<p align= "center" 
-<sub> typology: sp/so 485 (sp4w5 - so8w7 - sp5w4) | The Scholar-Guardian | LVEF [Accentuated 1L] | INTJ IN(T) Ni>Te>Fi>Se | Gamma Quadra [ILI-Ni] | rL[U]Ei mC[T]ixrG | Mel-Chol | Chaotic Neutral | BTZS-1 | MOEW-1 | NVPB-2 | [D]re/G/mEr (R-O-U-D-A) </sub>
-  
- </details>
-
-
-<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/b47fe372-dfa4-4750-95b1-f00c56085e07" />
-<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/a1acf5a0-1920-4ab6-b59f-2ff5501b6711" />
-
-  
+<img width="2048" height="171" alt="dd113451a3eed62017e699e9cea47366cfa40b74" src="https://github.com/user-attachments/assets/4c47e0fe-a9df-42ac-b455-3c50f64a748a" />
+<img width="1900" height="400" alt="tumblr_3a3113175e5357bfc46790994e074a31_c6d1007d_2048" src="https://github.com/user-attachments/assets/44112dcd-a8f4-4484-a6db-44596b4f01a9" />
 
