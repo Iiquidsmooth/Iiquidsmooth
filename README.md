@@ -11,7 +11,7 @@ wip..!!! layout by [@Mourged](https://www.tumblr.com/mourged) on tumblr!!
 <img width="1000" height="81" alt="tumblr_98eee7250d617e06a12d0a1b2d6599d1_196f7816_1280" src="https://github.com/user-attachments/assets/9f8c0093-2f5f-4430-9984-59ee0fb4d884" />
 
 <img width="300" alt="image" src="https://github.com/user-attachments/assets/022f8719-d0ff-4e85-a3c7-7eaba9428b8d" />
-<img width="400"  alt="image" src="https://github.com/user-attachments/assets/243e054c-b0cb-4dd4-a29d-044873fe2440" />
+<img width="350"  alt="image" src="https://github.com/user-attachments/assets/243e054c-b0cb-4dd4-a29d-044873fe2440" />
 <img width="300" alt="image" src="https://github.com/user-attachments/assets/fb8a770c-9d68-4eba-a6dc-b3545fb889d4" />
 
 
