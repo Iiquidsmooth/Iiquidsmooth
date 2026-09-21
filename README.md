@@ -7,7 +7,7 @@
 <img width="500" alt="tumblr_231e3717b49a1595376ea1448f194af7_1a621cc2_1280" src="https://github.com/user-attachments/assets/d9b6a572-b20b-4a00-865c-d82d3b248e54" align="left" />
 
 
-so/sx 783 (so7w8 - so8w7 - sx3w4) | VFEL [Accentuated 2V] | ESFP ES(F) Se>Fi>Te>Ni | Gamma Quadra [SEE-Se] | sC[U]E[N] | Choleric-Sanguine | Chaotic Neutral
+so/sx 738 (so7w8 - sx3w4 - so8w7) | VFEL [Accentuated 2V] | ESFP ES(F) Se>Fi>Te>Ni | Gamma Quadra [SEE-Se] | sC[U]E[N] | Choleric-Sanguine | Chaotic Neutral
 
 
 wip..!!! layout by [@Mourged](https://www.tumblr.com/mourged) on tumblr!!
