@@ -13,7 +13,7 @@
 so/sx 738 (so7w8 - sx3w4 - so8w7) | VFEL [Accentuated 2V] | ESFP ES(F) Se>Fi>Te>Ni | Gamma Quadra [SEE-Se] | sC[U]E[N] | Choleric-Sanguine | Chaotic Neutral
 
 
-wip..!!! layout by [@Mourged](https://www.tumblr.com/mourged) on tumblr!!
+m socially awkward and have alot of moodswings so iwec, c*h always even if on dni i might go nv suddenly so js bare w me !!
 
 <img width="1000" height="81" alt="tumblr_98eee7250d617e06a12d0a1b2d6599d1_196f7816_1280" src="https://github.com/user-attachments/assets/9f8c0093-2f5f-4430-9984-59ee0fb4d884" />
 
