@@ -9,7 +9,32 @@
 <p align="center">
       <img src="https://hits.sh/github.com/Iiquidsmooth.svg?style=for-the-badge&label=%E2%80%8E%20%CB%9A%CB%96%F0%93%8D%A2%D6%B4%E0%BB%8B%E2%9D%80&extraCount=3489&color=000000">
 <p align="center">
-wip
+<details>
+      <summary> ${\textsf{\color{#ffffff} Pony town}}$ </summary>
+      I dislike being covered, but cuddles are appreciated unless you’re on my DNI list. I bite. Sometimes. It really depends on who’s fronting.
+
+so please ask. I’m usually with Awze (Chemicalshot), though I occasionally visit MCYT Hill for my friends. I can be distant when we first meet because I’m not used to making new friends. If I don’t vibe with you, I’ll let you know and unfriend you.
+
+I’m usually off-tab or AFK because I’m busy cooking, studying, or doing other things. My time zone is GMT+8. I’m at school from 9 AM to 2 PM, so I may be online but won’t be on-tab.
+
+</details>
+
+
+<details>
+      <summary> ${\textsf{\color{#ffffff} oomfies}}$ </summary>
+
+TRIO <33  [Awze](https://github.com/chemicalshot) & [Merisz](https://github.com/deadbridewalking)
+
+BESTIES [wither](https://github.com/LAWRlE) [twotimey](https://github.com/coffeejeellyyy) [Flash](https://github.com/flashyl) [Mexion](https://github.com/Princezamadorer)
+
+
+Party members woaw [Kai](https://github.com/pyrionlyx) [Kaleb](https://github.com/Glistenn) [Vixxen](https://github.com/VlXXEN) [Bluu](https://github.com/peestainedcarpet) [Jester](https://github.com/Jesters-Circus) [Camryn](https://github.com/self-preservation8) [Fish](https://github.com/architectfishh)  
+
+OOMFIES!!!  [bwon](https://github.com/fourtysevenstreaks) [mallory](https://github.com/candyblsmm) [melody](https://github.com/melodryll)  [joyce](https://github.com/joycebyers) [Val](https://github.com/WoundedRibbons) [crane](https://github.com/infinitelygrey) [zip](https://github.com/zipward) [truffle](https://github.com/savoyytruffle) [Laugh](https://github.com/Laughabilitys) [Vin](https://github.com/bipperism) [peopei](https://github.com/iloveoishisomuch) [KOSAAAA](https://github.com/Ye-Kosa) [MACEEEE](https://github.com/themacewielder) [MUSTARDD](https://github.com/mustard-fragger) [IZZY!!!](https://github.com/LEOWOOKFAN) [sunny](https://github.com/sunnyfoggy) [laxie](https://github.com/Lax1e) [subpace](https://github.com/SUBSP4CE) [squiffy](https://github.com/squiffied) [SAMMM](https://github.com/cr0ssroads) 
+
+sign my ata if i missed any,,, ok? ok...
+
+</details>
 <details>
  <summary> ${\textsf{\color{#ffffff} Stamps }}$ </summary>
  
