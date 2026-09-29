@@ -6,7 +6,8 @@
 
 <img width="400"  alt="image" src="https://github.com/user-attachments/assets/ea6eacd9-e442-475b-be66-7b1405ba74ce" align="left"/>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FFFFFF&width=435&lines=LEAVING+SO+SOON%3F)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FFFFFF&width=400&lines=LEAVING+SO+SOON%3F)](https://git.io/typing-svg)
+
 <p align="center">
       <img src="https://hits.sh/github.com/Iiquidsmooth.svg?style=for-the-badge&label=%E2%80%8E%20%CB%9A%CB%96%F0%93%8D%A2%D6%B4%E0%BB%8B%E2%9D%80&extraCount=3489&color=000000">
 
