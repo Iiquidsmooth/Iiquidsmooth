@@ -4,7 +4,7 @@
 
 <img width="1280" height="720" alt="tumblr_9d9cbe28b961ccdd64e58e061249f75f_cf2f571f_1280" src="https://github.com/user-attachments/assets/d3777fb2-f2b1-43a6-8ac7-de4a153229e3" />
 
-<img width="450"  alt="image" src="https://github.com/user-attachments/assets/ea6eacd9-e442-475b-be66-7b1405ba74ce" align="left"/>
+<img width="400"  alt="image" src="https://github.com/user-attachments/assets/ea6eacd9-e442-475b-be66-7b1405ba74ce" align="left"/>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FFFFFF&width=435&lines=LEAVING+SO+SOON%3F)](https://git.io/typing-svg)
 <p align="center">
