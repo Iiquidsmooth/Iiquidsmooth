@@ -7,7 +7,7 @@
 
 <img width="400" alt="tumblr_bb32a1c2c160d689c208c8bbc62ac1b9_69b984cf_1280" src="https://github.com/user-attachments/assets/19b1d574-b435-4304-9c61-d85b5af36f0f" align="left" />
 
-![](https://komarev.com/ghpvc/?username=Iiquidsmooth&style=for-the-badge&color=000000)
+[![Hits](https://hits.sh/github.com/Iiquidsmooth.svg?style=for-the-badge&label=MAILS&extraCount=247&color=000000)](https://hits.sh/github.com/Iiquidsmooth/)
 
 wip
 
