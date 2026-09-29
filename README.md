@@ -1,10 +1,12 @@
 <img width="1280" height="426" alt="tumblr_96230108d723ac440123e8a7d5d44e6b_b4d08c89_1280" src="https://github.com/user-attachments/assets/f8f4174f-202c-4997-923d-7c85d0b0156e" />
 
-<img width="2048" height="19" alt="tumblr_8836684edf7c2b56ee78f52639a0fba8_c15c5207_2048" src="https://github.com/user-attachments/assets/600fe37d-f6d7-4b3b-9e81-7b5877a5d888" />
+<img width="2048" height="25" alt="tumblr_8836684edf7c2b56ee78f52639a0fba8_c15c5207_2048" src="https://github.com/user-attachments/assets/600fe37d-f6d7-4b3b-9e81-7b5877a5d888" />
 
 <img width="1280" height="720" alt="tumblr_9d9cbe28b961ccdd64e58e061249f75f_cf2f571f_1280" src="https://github.com/user-attachments/assets/d3777fb2-f2b1-43a6-8ac7-de4a153229e3" />
 
 <img width="450" height="500" alt="image" src="https://github.com/user-attachments/assets/ea6eacd9-e442-475b-be66-7b1405ba74ce" align="left"/>
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FFFFFF&width=435&lines=LEAVING+SO+SOON%3F)](https://git.io/typing-svg)
 
 <p align="center">
       <img src="https://hits.sh/github.com/Iiquidsmooth.svg?style=for-the-badge&label=%E2%80%8E%20%CB%9A%CB%96%F0%93%8D%A2%D6%B4%E0%BB%8B%E2%9D%80&extraCount=3489&color=000000">
@@ -51,9 +53,8 @@ sign my ata if i missed any,,, ok? ok...
 
 </details>
 
-<p align= center> 
-
-[frozi](https://frozi.lol/dumbisdumb) [atabook](https://reveried.atabook.org/)
+        
+  [frozi](https://frozi.lol/dumbisdumb) 𓈒ֵ۫    ׄ ₍₋︨︡ₒ₋︧︠₎  [atabook](https://reveried.atabook.org/)
 
 <img width="2048" height="19" alt="tumblr_8836684edf7c2b56ee78f52639a0fba8_c15c5207_2048" src="https://github.com/user-attachments/assets/6c818aad-5dfd-4472-b8cb-91210816724e" />
 
