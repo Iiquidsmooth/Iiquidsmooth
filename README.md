@@ -51,6 +51,10 @@ sign my ata if i missed any,,, ok? ok...
 
 </details>
 
+<p align= center> 
+
+[frozi](https://frozi.lol/dumbisdumb) [atabook](https://reveried.atabook.org/)
+
 <img width="2048" height="19" alt="tumblr_8836684edf7c2b56ee78f52639a0fba8_c15c5207_2048" src="https://github.com/user-attachments/assets/6c818aad-5dfd-4472-b8cb-91210816724e" />
 
 <img width="1280" height="720" alt="tumblr_5cdb3b6e5918380e73d4a6de3ef8c416_bb26a188_1280" src="https://github.com/user-attachments/assets/d3ac65eb-cab5-4fcc-b2ab-872fb0799bb6" />
