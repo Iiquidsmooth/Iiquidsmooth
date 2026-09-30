@@ -36,7 +36,9 @@ Party members woaw [Kai](https://github.com/pyrionlyx) [Kaleb](https://github.co
 
 OOMFIES!!!  [bwon](https://github.com/fourtysevenstreaks) [mallory](https://github.com/candyblsmm) [melody](https://github.com/melodryll)  [joyce](https://github.com/joycebyers) [Val](https://github.com/WoundedRibbons) [crane](https://github.com/infinitelygrey) [zip](https://github.com/zipward) [truffle](https://github.com/savoyytruffle) [Laugh](https://github.com/Laughabilitys) [Vin](https://github.com/bipperism) [peopei](https://github.com/iloveoishisomuch) [KOSAAAA](https://github.com/Ye-Kosa) [MACEEEE](https://github.com/themacewielder) [MUSTARDD](https://github.com/mustard-fragger) [IZZY!!!](https://github.com/LEOWOOKFAN) [sunny](https://github.com/sunnyfoggy) [laxie](https://github.com/Lax1e) [subpace](https://github.com/SUBSP4CE) [squiffy](https://github.com/squiffied) [SAMMM](https://github.com/cr0ssroads) 
 
-sign my ata if i missed any,,, ok? ok...
+honourable mentions: mox and cinth hi plagiarism trio aww ilysm /p 
+
+sign my ata if I missed any,,, ok? ok...
 
 </details>
 <details>
