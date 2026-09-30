@@ -32,7 +32,7 @@ TRIO <33  [Awze](https://github.com/chemicalshot) & [Merisz](https://github.com/
 BESTIES [wither](https://github.com/LAWRlE) [twotimey](https://github.com/coffeejeellyyy) [Flash](https://github.com/flashyl) [Mexion](https://github.com/Princezamadorer)
 
 
-Party members woaw [Kai](https://github.com/pyrionlyx) [Kaleb](https://github.com/Glistenn) [Vixxen](https://github.com/VlXXEN) [Bluu](https://github.com/peestainedcarpet) [Jester](https://github.com/Jesters-Circus) [Camryn](https://github.com/self-preservation8) [Fish](https://github.com/architectfishh)  
+Party members woaw [Kai](https://github.com/pyrionlyx) [Kaleb](https://github.com/Glistenn) [Vixxen](https://github.com/VlXXEN) [Bluu](https://github.com/peestainedcarpet) [Jester](https://github.com/Jesters-Circus) [Camryn](https://github.com/self-preservation8) [Fish](https://github.com/architectfishh)  [Lizzy](https://github.com/raininsanity)
 
 OOMFIES!!!  [bwon](https://github.com/fourtysevenstreaks) [mallory](https://github.com/candyblsmm) [melody](https://github.com/melodryll)  [joyce](https://github.com/joycebyers) [Val](https://github.com/WoundedRibbons) [crane](https://github.com/infinitelygrey) [zip](https://github.com/zipward) [truffle](https://github.com/savoyytruffle) [Laugh](https://github.com/Laughabilitys) [Vin](https://github.com/bipperism) [peopei](https://github.com/iloveoishisomuch) [KOSAAAA](https://github.com/Ye-Kosa) [MACEEEE](https://github.com/themacewielder) [MUSTARDD](https://github.com/mustard-fragger) [IZZY!!!](https://github.com/LEOWOOKFAN) [sunny](https://github.com/sunnyfoggy) [laxie](https://github.com/Lax1e) [subpace](https://github.com/SUBSP4CE) [squiffy](https://github.com/squiffied) [SAMMM](https://github.com/cr0ssroads) 
 
