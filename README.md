@@ -20,6 +20,7 @@ so please ask. Also, if I'm on DNI, I'm ok with cuddles; just don't talk to me, 
 
 I’m usually off-tab or AFK because I’m busy cooking, studying, or doing other things. My time zone is GMT+8. I’m at school from 9 AM to 2 PM, so I may be online but won’t be on-tab.
 
+to my sweet SWEET old party oomfs stop going into MY area or near my area unless ur cuddling with someone i prob know or seen many times if yall have a problem with me because of chemicalshot, get a fucking life /srs 
 
 
 </details>
