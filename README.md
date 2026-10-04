@@ -16,7 +16,7 @@
 
 so please ask. Also, if I'm on DNI, I'm ok with cuddles; just don't talk to me, ok? ok 
 
-. I’m usually with Awze (Chemicalshot), though I occasionally visit MCYT Hill for my friends. I can be distant when we first meet because I’m not used to making new friends. If I don’t vibe with you, I’ll let you know and unfriend you.
+. I’m usually with Awze (Chemicalshot) wirethorn duo crumbs, though I occasionally visit MCYT Hill for my friends. I can be distant when we first meet because I’m not used to making new friends. If I don’t vibe with you, I’ll let you know and unfriend you.
 
 I’m usually off-tab or AFK because I’m busy cooking, studying, or doing other things. My time zone is GMT+8. I’m at school from 9 AM to 2 PM, so I may be online but won’t be on-tab.
 
