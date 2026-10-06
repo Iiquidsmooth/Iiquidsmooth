@@ -1,3 +1,5 @@
+to my sweet SWEET old party oomfs stop going into MY area or near my area unless ur cuddling with someone i prob know or seen many times if yall have a problem with me because of chemicalshot, get a fucking life.
+
 <img width="1280" height="426" alt="tumblr_96230108d723ac440123e8a7d5d44e6b_b4d08c89_1280" src="https://github.com/user-attachments/assets/f8f4174f-202c-4997-923d-7c85d0b0156e" />
 
 <img width="2048" height="19" alt="tumblr_8836684edf7c2b56ee78f52639a0fba8_c15c5207_2048" src="https://github.com/user-attachments/assets/600fe37d-f6d7-4b3b-9e81-7b5877a5d888" />
@@ -20,7 +22,6 @@ so please ask. Also, if I'm on DNI, I'm ok with cuddles; just don't talk to me, 
 
 I’m usually off-tab or AFK because I’m busy cooking, studying, or doing other things. My time zone is GMT+8. I’m at school from 9 AM to 2 PM, so I may be online but won’t be on-tab.
 
-to my sweet SWEET old party oomfs stop going into MY area or near my area unless ur cuddling with someone i prob know or seen many times if yall have a problem with me because of chemicalshot, get a fucking life /srs 
 
 
 </details>
