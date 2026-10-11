@@ -14,7 +14,7 @@ ${\textsf{\color{#e0d8e4}　　🎼 ₍ᐢˊo̴̶̷̤ ̫ o̴̶̷̤ˋᐢ₎}}$ ${
 
 [(⸝⸝ɞ̴̶̷ ⩊ ɞ̴̶̷  ྀི)](https://reveried.atabook.org/)　　　　[₍^𓈒ㆆ ̫ㆆ𓈒^ྀི₎](https://pronouns.cc/@paralIelismduo)
 
-　　　　　　[frozi](https://frozi.lol/dumbisdumb)　　 𓈒ֵ۫    ׄ ₍₋︨︡ₒ₋︧︠₎
+[૮( ᵒ̌ૢཪᵒ̌ૢ )ა](https://frozi.lol/dumbisdumb)　　　　[(ᐡ߹꒳߹ᐡ)](https://mapiclings.straw.page)　　 𓈒ֵ۫    ׄ ₍₋︨︡ₒ₋︧︠₎  
 
             
 <img src="https://hits.sh/github.com/Iiquidsmooth.svg?style=for-the-badge&label=%E2%80%8E%20%CB%9A%CB%96%F0%93%8D%A2%D6%B4%E0%BB%8B%E2%9D%80&extraCount=3489&color=dbbedd">
