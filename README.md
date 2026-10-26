@@ -1,24 +1,17 @@
+<img width="1900" height="400" alt="image" src="https://github.com/user-attachments/assets/4dd9d7a5-a595-49ff-9fc3-fe82b2b34f1d" />
+<img width="2048" height="171" alt="image" src="https://github.com/user-attachments/assets/9292fb99-b18d-4ba2-8caf-b87429be6a14" />
+<img width="2000" height="1125" alt="image" src="https://github.com/user-attachments/assets/17e2568b-d8b9-403b-aa4f-e9da3def900e" />
 
-<img width="99" alt="image" src="https://github.com/user-attachments/assets/d838aff5-3fcf-4953-afa5-f043fa3e0c02" /> <img width="99" alt="image" src="https://github.com/user-attachments/assets/50727c91-4ac1-4db0-8e98-93f8474e54fd" />
-<img alt="Untitled124_20260901204927" src="https://github.com/user-attachments/assets/d48155ba-2a49-4bb6-a579-f2196fd29a1b" width="450" align="left">
-
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/bc597be7-66a4-49d5-8f71-626617198442" /> ${\textsf{\color{#c86aa8} ࿙.͜໒꒱}}$ ${\textsf{\color{#b40d15} Do }}$ ${\textsf{\color{#ba273b} not }}$ ${\textsf{\color{#ca70b3} copy }}$
-
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/09f84873-2c5d-4bc4-8ebf-a8c0f707cd09" /> ${\textsf{\color{#c86aa8} ࿙.͜໒꒱}}$ ${\textsf{\color{#b40d15} Ask }}$ ${\textsf{\color{#ba273b} 2 }}$ ${\textsf{\color{#ca70b3} inspo }}$
-
-${\textsf{\color{#c04363}　　𓏼˚̣̣̣　♥︎ }}$ ${\textsf{\color{#c24b6f}　　you,}}$ ${\textsf{\color{#bd3955} and}}$ ${\textsf{\color{#b20000} me,}}$
-
-${\textsf{\color{#e0d8e4}　　🎼 ₍ᐢˊo̴̶̷̤ ̫ o̴̶̷̤ˋᐢ₎}}$ ${\textsf{\color{#dbbedd}　✟　and}}$ ${\textsf{\color{#c7649e}　him}}$
-
-[(⸝⸝ɞ̴̶̷ ⩊ ɞ̴̶̷  ྀི) 新book](https://reveried.atabook.org/)　　　　[₍^𓈒ㆆ ̫ㆆ𓈒^ྀི₎ prns.cc](https://pronouns.cc/@paralIelismduo)
+<img align="left"
+src="https://64.media.tumblr.com/2a6e08fea4234ca490fee33709ff3942/55f6e058bd89863c-a6/s1280x1920/00825274cd7521aee1a19c4de5e692e70532c7be.pnj" alt="decor img" width="50%"/>
+[(⸝⸝ɞ̴̶̷ ⩊ ɞ̴̶̷  ྀི) 新book](https://reveried.atabook.org/)　　　　[₍^𓈒ㆆ ̫ㆆ𓈒^ྀི₎ prns.cc](https://pronouns.cc/@paralIelismduo)　　　
 
 [૮( ᵒ̌ૢཪᵒ̌ૢ )ა frozi](https://frozi.lol/dumbisdumb)　　　　[(ᐡ߹꒳߹ᐡ) strawpage](https://mapiclings.straw.page)　　 𓈒ֵ۫    ׄ ₍₋︨︡ₒ₋︧︠₎  
 
             
 <img src="https://hits.sh/github.com/Iiquidsmooth.svg?style=for-the-badge&label=%E2%80%8E%20%CB%9A%CB%96%F0%93%8D%A2%D6%B4%E0%BB%8B%E2%9D%80&extraCount=3489&color=dbbedd">
-
 <details>
-      <summary> ${\textsf{\color{#ffffff} oomfies}}$ </summary>
+      <summary> oomfies </summary>
 
 TRIO <33  [Awze](https://github.com/chemicalshot) & [Merisz](https://github.com/deadbridewalking)
 
@@ -35,8 +28,26 @@ sign my ata if I missed any,,, ok? ok...
 
 </details>
 
-<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/b47fe372-dfa4-4750-95b1-f00c56085e07" />
-<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/a1acf5a0-1920-4ab6-b59f-2ff5501b6711" />
+
+⠀ྀི︶⠀⠀ Leave⠀⠀You⠀⠀Alone
+
+⠀With⠀⠀ ㅠㅅㅠ ❤︎⠀ Nothing ˳ ˳ ⠀꒰ ͜͡ ྀ ̤̾🪼˳♡꒱
+<img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/4e69dfde-7aee-4161-896f-e35987f13f12" />
+<img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/a0331715-55ee-495e-9365-06ba1ac62610" />
+
+<img width="120" alt="image" src="https://github.com/user-attachments/assets/eb7bdc49-4579-4d1d-80f5-e0f1d795d5c2" />
+<img width="90" alt="image" src="https://github.com/user-attachments/assets/5ea115eb-ab67-4a21-81fa-b1344cfe6796" />
+
+
+   
+<img width="500" alt="image" src="https://github.com/user-attachments/assets/77222e3a-5890-4779-aa0e-56b1f9c8e05a" />
+<img width="500" alt="image" src="https://github.com/user-attachments/assets/872af25f-a778-49d2-b469-d8f7071eaf3e" />
+
+
+
+<img width="2048" height="171" alt="image" src="https://github.com/user-attachments/assets/33528a45-b18e-481a-981f-2ddb59548a5f" />
+
+<img width="1900" height="400" alt="image" src="https://github.com/user-attachments/assets/0fa70aa9-5e91-460d-a9d7-dc20e9b5275a" />
 
  
 
