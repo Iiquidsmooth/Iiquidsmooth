@@ -40,8 +40,8 @@ sign my ata if I missed any,,, ok? ok...
 
 
    
-<img width="500" alt="image" src="https://github.com/user-attachments/assets/77222e3a-5890-4779-aa0e-56b1f9c8e05a" />
-<img width="500" alt="image" src="https://github.com/user-attachments/assets/872af25f-a778-49d2-b469-d8f7071eaf3e" />
+<img width="400" alt="image" src="https://github.com/user-attachments/assets/77222e3a-5890-4779-aa0e-56b1f9c8e05a" />
+<img width="400" alt="image" src="https://github.com/user-attachments/assets/872af25f-a778-49d2-b469-d8f7071eaf3e" />
 
 
 
