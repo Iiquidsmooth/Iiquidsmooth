@@ -31,7 +31,9 @@ sign my ata if I missed any,,, ok? ok...
 
 ${\textsf{\color{#68ACD0}⠀ྀི︶}}$ ${\textsf{\color{#7699D5}⠀⠀ Leave}}$ ${\textsf{\color{#DD9EB9}⠀⠀You}}$ ${\textsf{\color{#E4D8D7}⠀⠀Alone}}$
 
-⠀With⠀⠀ ㅠㅅㅠ ❤︎⠀ Nothing ˳ ˳ ⠀꒰ ͜͡ ྀ ̤̾🪼˳♡꒱
+${\textsf{\color{#E4D8D7}⠀With}}$ ${\textsf{\color{#68ACD0}⠀⠀ ㅠㅅㅠ}}$ ${\textsf{\color{#7699D5} ❤︎}}$ ${\textsf{\color{#235AB8}⠀ Nothing}} ${\textsf{\color{#1735A5} ˳ ˳ ⠀}}$ ${\textsf{\color{#DD9EB9} ꒰ ͜͡ ྀ ̤̾🪼˳♡꒱}}$
+
+
 
 <img width="350" alt="image" src="https://github.com/user-attachments/assets/872af25f-a778-49d2-b469-d8f7071eaf3e" />
 
