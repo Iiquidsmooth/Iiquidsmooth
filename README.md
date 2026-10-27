@@ -29,18 +29,10 @@ sign my ata if I missed any,,, ok? ok...
 </details>
 
 
-⠀ྀི︶⠀⠀ Leave⠀⠀You⠀⠀Alone
+${\textsf{\color{#68ACD0}⠀ྀི︶}}$ ${\textsf{\color{#7699D5}⠀⠀ Leave}}$ ${\textsf{\color{#DD9EB9}⠀⠀You}}$ ${\textsf{\color{#E4D8D7}⠀⠀Alone}}$
 
 ⠀With⠀⠀ ㅠㅅㅠ ❤︎⠀ Nothing ˳ ˳ ⠀꒰ ͜͡ ྀ ̤̾🪼˳♡꒱
-<img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/4e69dfde-7aee-4161-896f-e35987f13f12" />
-<img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/a0331715-55ee-495e-9365-06ba1ac62610" />
 
-<img width="120" alt="image" src="https://github.com/user-attachments/assets/eb7bdc49-4579-4d1d-80f5-e0f1d795d5c2" />
-<img width="90" alt="image" src="https://github.com/user-attachments/assets/5ea115eb-ab67-4a21-81fa-b1344cfe6796" />
-
-
-   
-<img width="350" alt="image" src="https://github.com/user-attachments/assets/77222e3a-5890-4779-aa0e-56b1f9c8e05a" />
 <img width="350" alt="image" src="https://github.com/user-attachments/assets/872af25f-a778-49d2-b469-d8f7071eaf3e" />
 
 
