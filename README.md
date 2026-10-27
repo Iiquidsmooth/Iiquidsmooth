@@ -31,7 +31,7 @@ sign my ata if I missed any,,, ok? ok...
 
 ${\textsf{\color{#68ACD0}⠀ྀི︶}}$ ${\textsf{\color{#7699D5}⠀⠀ Leave}}$ ${\textsf{\color{#DD9EB9}⠀⠀You}}$ ${\textsf{\color{#E4D8D7}⠀⠀Alone}}$
 
-${\textsf{\color{#E4D8D7}⠀With}}$ ${\textsf{\color{#68ACD0}⠀⠀ ㅠㅅㅠ}}$ ${\textsf{\color{#7699D5} ❤︎}}$ ${\textsf{\color{#235AB8}⠀ Nothing}} ${\textsf{\color{#1735A5} ˳ ˳ ⠀}}$ ${\textsf{\color{#DD9EB9} ꒰ ͜͡ ྀ ̤̾🪼˳♡꒱}}$
+${\textsf{\color{#E4D8D7}⠀With}}$ ${\textsf{\color{#68ACD0}⠀⠀ ㅠㅅㅠ}}$ ${\textsf{\color{#7699D5} ❤︎}}$ ${\textsf{\color{#235AB8}⠀ Nothing}}$ ${\textsf{\color{#1735A5} ˳ ˳ ⠀}}$ ${\textsf{\color{#DD9EB9} ꒰ ͜͡ ྀ ̤̾🪼˳♡꒱}}$
 
 
 
