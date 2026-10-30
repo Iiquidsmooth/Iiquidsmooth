@@ -33,9 +33,9 @@ ${\textsf{\color{#68ACD0}⠀ྀི︶}}$ ${\textsf{\color{#7699D5}⠀⠀ Leave}}
 
 ${\textsf{\color{#E4D8D7}⠀With}}$ ${\textsf{\color{#68ACD0}⠀⠀ ㅠㅅㅠ}}$ ${\textsf{\color{#7699D5} ❤︎}}$ ${\textsf{\color{#235AB8}⠀ Nothing}}$ ${\textsf{\color{#1735A5} ˳ ˳ ⠀}}$ ${\textsf{\color{#DD9EB9} ꒰ ͜͡ ྀ ̤̾🪼˳♡꒱}}$
 
+<img width="342" height="53" alt="image" src="https://github.com/user-attachments/assets/93b291cc-4b02-404c-b049-99c7116ceb4a" />
 
-
-<img width="350" alt="image" src="https://github.com/user-attachments/assets/872af25f-a778-49d2-b469-d8f7071eaf3e" />
+i had more but i asked them to remove me ;)
 
 
 
