@@ -14,7 +14,7 @@ src="https://github.com/user-attachments/assets/ad33de29-233b-43c0-ab54-e952ec61
 
 　　　my feelings⠀⠀ㅤㅤ❤︎ㅤㅤㅤ 誠💘
    
-<img src="https://hits.sh/github.com/Iiquidsmooth.svg?style=for-the-badge&label=%E2%80%8E%20%CB%9A%CB%96%F0%93%8D%A2%D6%B4%E0%BB%8B%E2%9D%80&extraCount=3489&color=dbbedd">
+<img src="https://hits.sh/github.com/Iiquidsmooth.svg?style=for-the-badge&label=%E2%80%8E%20%CB%9A%CB%96%F0%93%8D%A2%D6%B4%E0%BB%8B%E2%9D%80&extraCount=3489&color=f94b2a">
 <details>
       <summary> oomfies </summary>
 
