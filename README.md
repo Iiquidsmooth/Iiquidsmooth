@@ -1,14 +1,19 @@
-<img width="1900" height="400" alt="image" src="https://github.com/user-attachments/assets/4dd9d7a5-a595-49ff-9fc3-fe82b2b34f1d" />
-<img width="2048" height="171" alt="image" src="https://github.com/user-attachments/assets/9292fb99-b18d-4ba2-8caf-b87429be6a14" />
-<img width="2000" height="1125" alt="image" src="https://github.com/user-attachments/assets/17e2568b-d8b9-403b-aa4f-e9da3def900e" />
+<img width="1280" height="503" alt="image" src="https://github.com/user-attachments/assets/016ca60c-56cf-422c-86f8-6def1c334e0b" />
+<img width="1280" alt="image" src="https://github.com/user-attachments/assets/546f83c1-7e9f-4eea-aa55-6c502a22bec8" />
+<img width="1280" alt="image" src="https://github.com/user-attachments/assets/0231ce49-0ced-4228-bfcd-87d79fc57c34" />
 
 <img align="left"
-src="https://64.media.tumblr.com/2a6e08fea4234ca490fee33709ff3942/55f6e058bd89863c-a6/s1280x1920/00825274cd7521aee1a19c4de5e692e70532c7be.pnj" alt="decor img" width="50%"/>
+src="https://github.com/user-attachments/assets/ad33de29-233b-43c0-ab54-e952ec618b5c" alt="decor img" width="50%"/> 
 [(⸝⸝ɞ̴̶̷ ⩊ ɞ̴̶̷  ྀི) 新book](https://reveried.atabook.org/)　　　　[₍^𓈒ㆆ ̫ㆆ𓈒^ྀི₎ prns.cc](https://pronouns.cc/@paralIelismduo)　　　
 
 [૮( ᵒ̌ૢཪᵒ̌ૢ )ა frozi](https://frozi.lol/dumbisdumb)　　　　[(ᐡ߹꒳߹ᐡ) strawpage](https://mapiclings.straw.page)　　 𓈒ֵ۫    ׄ ₍₋︨︡ₒ₋︧︠₎  
 
-            
+
+ 
+♪　　🍓　 ꯭✿　　　dear,
+
+　　　my feelings⠀⠀ㅤㅤ❤︎ㅤㅤㅤ 誠💘
+   
 <img src="https://hits.sh/github.com/Iiquidsmooth.svg?style=for-the-badge&label=%E2%80%8E%20%CB%9A%CB%96%F0%93%8D%A2%D6%B4%E0%BB%8B%E2%9D%80&extraCount=3489&color=dbbedd">
 <details>
       <summary> oomfies </summary>
@@ -28,20 +33,4 @@ sign my ata if I missed any,,, ok? ok...
 
 </details>
 
-
-${\textsf{\color{#68ACD0}⠀ྀི︶}}$ ${\textsf{\color{#7699D5}⠀⠀ Leave}}$ ${\textsf{\color{#DD9EB9}⠀⠀You}}$ ${\textsf{\color{#E4D8D7}⠀⠀Alone}}$
-
-${\textsf{\color{#E4D8D7}⠀With}}$ ${\textsf{\color{#68ACD0}⠀⠀ ㅠㅅㅠ}}$ ${\textsf{\color{#7699D5} ❤︎}}$ ${\textsf{\color{#235AB8}⠀ Nothing}}$ ${\textsf{\color{#1735A5} ˳ ˳ ⠀}}$ ${\textsf{\color{#DD9EB9} ꒰ ͜͡ ྀ ̤̾🪼˳♡꒱}}$
-
-<img width="342" height="53" alt="image" src="https://github.com/user-attachments/assets/93b291cc-4b02-404c-b049-99c7116ceb4a" />
-
-i had more but i asked them to remove me ;)
-
-
-
-<img width="2048" height="171" alt="image" src="https://github.com/user-attachments/assets/33528a45-b18e-481a-981f-2ddb59548a5f" />
-
-<img width="1900" height="400" alt="image" src="https://github.com/user-attachments/assets/0fa70aa9-5e91-460d-a9d7-dc20e9b5275a" />
-
- 
-
+<img width="1280" alt="image" src="https://github.com/user-attachments/assets/0231ce49-0ced-4228-bfcd-87d79fc57c34" />
