@@ -1,20 +1,27 @@
-<img width="1280" height="503" alt="image" src="https://github.com/user-attachments/assets/016ca60c-56cf-422c-86f8-6def1c334e0b" />
-<img width="1280" alt="image" src="https://github.com/user-attachments/assets/546f83c1-7e9f-4eea-aa55-6c502a22bec8" />
-<img width="1280" alt="image" src="https://github.com/user-attachments/assets/0231ce49-0ced-4228-bfcd-87d79fc57c34" />
+<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/f8539aae-9ff1-40db-b809-011a816c6c62" />
 
-<img align="left"
-src="https://github.com/user-attachments/assets/ad33de29-233b-43c0-ab54-e952ec618b5c" alt="decor img" width="50%"/> 
+<p align ="center"
+ 
 [(⸝⸝ɞ̴̶̷ ⩊ ɞ̴̶̷  ྀི) 新book](https://reveried.atabook.org/)　　　　[₍^𓈒ㆆ ̫ㆆ𓈒^ྀི₎ prns.cc](https://pronouns.cc/@paralIelismduo)　　　
 
+<p align ="center"
+ 
 [૮( ᵒ̌ૢཪᵒ̌ૢ )ა frozi](https://frozi.lol/dumbisdumb)　　　　[(ᐡ߹꒳߹ᐡ) strawpage](https://mapiclings.straw.page)　　 𓈒ֵ۫    ׄ ₍₋︨︡ₒ₋︧︠₎  
 
 
- 
+ <p align ="center"
+  
 ♪　　🍓　 ꯭✿　　　dear,
 
-　　　my feelings⠀⠀ㅤㅤ❤︎ㅤㅤㅤ 誠💘
+ <p align ="center"
+  
+my feelings⠀⠀ㅤㅤ❤︎ㅤㅤㅤ 誠💘
    
+ <p align ="center">
+  
 <img src="https://hits.sh/github.com/Iiquidsmooth.svg?style=for-the-badge&label=%E2%80%8E%20%CB%9A%CB%96%F0%93%8D%A2%D6%B4%E0%BB%8B%E2%9D%80&extraCount=3489&color=f94b2a">
+
+
 <details>
       <summary> oomfies </summary>
 
@@ -33,4 +40,3 @@ sign my ata if I missed any,,, ok? ok...
 
 </details>
 
-<img width="1280" alt="image" src="https://github.com/user-attachments/assets/0231ce49-0ced-4228-bfcd-87d79fc57c34" />
