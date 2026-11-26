@@ -1,21 +1,30 @@
-<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/f8539aae-9ff1-40db-b809-011a816c6c62" />
+<img width="1280" height="50" alt="image" src="https://github.com/user-attachments/assets/98841ae9-8955-4591-b9f5-bc0b669e8808" />
+<img width="1280" alt="image" src="https://github.com/user-attachments/assets/7b3f8d5d-78f9-43ae-9ad8-e279cf2e692a" />
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/99241088-0fba-4cc2-b03e-509be556b0dd" />
+
+
+
+ <img align="left"
+src="https://github.com/user-attachments/assets/3ba03ddf-b16b-4270-9c1a-d529ef9c3831" alt="decor img" width="50%"/>
+
+
 
 <p align ="center"
  
 [(⸝⸝ɞ̴̶̷ ⩊ ɞ̴̶̷  ྀི) 新book](https://reveried.atabook.org/)　　　　[₍^𓈒ㆆ ̫ㆆ𓈒^ྀི₎ prns.cc](https://pronouns.cc/@paralIelismduo)　　　
 
 <p align ="center"
- 
+
 [૮( ᵒ̌ૢཪᵒ̌ૢ )ა frozi](https://frozi.lol/dumbisdumb)　　　　[(ᐡ߹꒳߹ᐡ) strawpage](https://mapiclings.straw.page)　　 𓈒ֵ۫    ׄ ₍₋︨︡ₒ₋︧︠₎  
 
 
  <p align ="center"
   
-♪　　🍓　 ꯭✿　　　dear,
+♪　　🌊　 ꯭✿　　　dear,
 
  <p align ="center"
   
-my feelings⠀⠀ㅤㅤ❤︎ㅤㅤㅤ 誠💘
+my feelings⠀⠀ㅤㅤ❤︎ㅤㅤㅤ 誠💤
    
  <p align ="center">
   
